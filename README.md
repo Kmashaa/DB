@@ -1,2 +1,2 @@
-![db](https://user-images.githubusercontent.com/74793818/194692688-7c0345cd-fb5c-45f6-8596-b72d939e0d52.png)
 Кравченко Мария Александровна, 053502
+![db](https://user-images.githubusercontent.com/74793818/194693414-7d5d4070-030a-4287-92fa-fc42a94908f9.png)
